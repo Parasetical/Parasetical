@@ -1,6 +1,6 @@
 ## Hello! Welkome to my Silly Introduction !! 
 
-##KEY
+## KEY
 
 🐾 - MY NAME IS MASHHY / PARASETICAL, MIO IS FOR PEOPLE WHO KNOW ME CLOSE ENOUGH.
 🐾 - I'M A MELEE MAIN, I BARELY USE SUPPORT OR RANGE.
