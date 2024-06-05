@@ -8,9 +8,9 @@
 
 I ❤️ MY FRIENDS (PLATONIC)
 
-[ ROBLOX ; MIOMIOFUNKY ]
-[ DISCORD ; PARASETICAL ]
-[ TIKTOK ; PARASETICAL ]
+(ROBLOX ; MIOMIOFUNKY)
+(DISCORD ; PARASETICAL)
+(TIKTOK ; PARASETICAL)
 
 ![download](https://github.com/Parasetical/Parasetical/assets/166775572/4dba8207-f97c-4bd2-a7b5-45c0220fe477)
 
