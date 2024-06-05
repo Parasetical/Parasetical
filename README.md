@@ -1,16 +1,15 @@
-## Hi there 👋
+## Hello! Welkome to my Silly Introduction !! 
 
-<!--
-**Parasetical/Parasetical** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![download](https://github.com/Parasetical/Parasetical/assets/166775572/4dba8207-f97c-4bd2-a7b5-45c0220fe477)
 
-Here are some ideas to get you started:
+## HOW DO I INTERACT WITH YOU? `
+🐾 - VIA W2I OR JUST CHATTING WITH ME!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## WHERE IS YOUR MAIN AREA?? `
+🐾 - ABOVE DOCKS! MAINLY PHIGHTING AREA! :33 
+
+## 🐾 PLEASE DON'T MAKE ANY NSFW OR INAPPROPRIATE JOKES NEAR ME, IM A MINOR AND IT MAKES ME UNCOMFORTABLE. 🐾 `
+
+## I AM HAPPILY TAKEN BY RAWR ❤️ .`
+
+## I MAY ALSO BE A BIT TOO SILLY SOMETIMES AND MAY GO OVERBOARD, IF I MAKE YOU UNCOMFY, PLEASE TELL ME.
