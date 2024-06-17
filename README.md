@@ -1,7 +1,4 @@
 ## Hello world.
-
-![download](https://github.com/Parasetical/Parasetical/assets/166775572/4dba8207-f97c-4bd2-a7b5-45c0220fe477)
-
  HOW DO I INTERACT WITH YOU? `
 🐾 - VIA W2I OR JUST CHATTING WITH ME!
 
@@ -11,4 +8,3 @@
  🐾 PLEASE DON'T MAKE ANY NSFW OR INAPPROPRIATE JOKES NEAR ME, IM A MINOR AND IT MAKES ME UNCOMFORTABLE. 🐾 `
 
 ## I MAY ALSO BE A BIT TOO SILLY SOMETIMES AND MAY GO OVERBOARD, IF I MAKE YOU UNCOMFY, PLEASE TELL ME.
-![download (1)](https://github.com/Parasetical/Parasetical/assets/166775572/121127e0-37f2-498c-be84-8fba8c5591ff)
