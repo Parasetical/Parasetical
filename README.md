@@ -1,7 +1,7 @@
 ## Hello Ponytowners!
-*CAME FROM PONYTOWN?* ; I sit in Phighting area alot. Alone, With friends, With my partner, basically anybody. If you're planning to INT you can INT with me via Whispering, or just chatting to me normally !! **ALSO, JUST A WARNING THAT I OCCASIONALLY HAVE A BRAINROT HUMOR, IF I GO OVERBOARD PLEASE INFORM ME. THANK YOU!**
+*CAME FROM PONYTOWN?* ; I sit in DW area alot [I don't support the devs.]. Alone, With friends, With my partner, basically anybody. If you're planning to INT you can INT with me via Whispering, or just chatting to me normally !! **ALSO, JUST A WARNING THAT I OCCASIONALLY HAVE A BRAINROT HUMOR, IF I GO OVERBOARD PLEASE INFORM ME. THANK YOU!**
 
-*INFORMATION?* ; OH RIGHT! Hello Ponytowners! The names Fluid, i also go by Parasetical / Masshy !! Minor + NO NSFW please !! (BRAINROT HUMOR IS OKAY WITH ME, BUT PLEASE KNOW YOUR LIMITS!) I am Taken by Ruby !!
+*INFORMATION?* ; OH RIGHT! Hello Ponytowners! The names Fluid, i also go by Parasetical / Fluid / parasite !! Minor + NO NSFW please !! (BRAINROT HUMOR IS OKAY WITH ME, BUT PLEASE KNOW YOUR LIMITS!) I am Taken by Ruby !!
 BISEXUAL + AROACE !! — ALL/ANY + ZE /ZEM PRNS! 
 FANDOMS IM IN ARE **PHIGHTING, YAELOKRE, FNAF, DANDYS WORLD, CARDCAPTOR SAKURA, FPE, AND MORE!! (for more information please visit my carrd. :3)**
 
